@@ -1,1 +1,1 @@
-THIS IS ASHERS AI DOMAIN
+a place for me to shar esomeof my reffaral codes and make money
